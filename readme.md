@@ -56,12 +56,12 @@ Again.
 
 One was loathe...  
 Too beholden to line  
-Taking too far  
+Taking too far.
 
 That's a no-no  
 I've been played like that before  
 From elated to down-low  
-Hate best papered over  
+Hate best papered over.
 
 Gold star rollin'  
 To every limit, all known  
@@ -103,15 +103,15 @@ End ain't far off now...
 Well, I'll be beacon and controller  
 Dug deep in the auld other  
 Run the tape, won't pause or baulk  
-Now I'm done harboring labour  
+Now I'm done harboring labour.
 
 Happy? Beacon and controller  
 Lodged deep in the auld other  
 No don't hide or shade thy gold  
-Straits die burgeoned over  
+Straits die burgeoned over.
 
 None can weight  
 Her domino  
 Falls as gravity  
 As sure as your endeavours  
-Fail to replicate  
+Fail to replicate.
